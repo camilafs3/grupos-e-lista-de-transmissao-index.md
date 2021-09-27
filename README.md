@@ -1,1 +1,0 @@
-# grupos-e-lista-de-transmissao-index.md
